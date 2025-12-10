@@ -1,4 +1,3 @@
-
 <!DOCTYPE html>
 <html lang="id-ID"><head>
     <style>
@@ -2832,7 +2831,7 @@
     <meta content="id" name="geo.country" />
     <meta http-equiv="content-language" content="In-Id" />
     <title>Jpkuy99 Tempat Bermain Game Mudah Akses Tanpa VPN</title>
-    <link rel="amphtml" href="https://Jpkuy99.pages.dev/">
+    <link rel="amphtml" href="https://jpkuy99-it-com.pages.dev/">
     <meta name="description" content="Jpkuy99 adalah sebuah tempat bermain game yang menggunakan server terbaru untuk mengakses sangat mudah tanpa harus menggunakan vpn." itemprop="description" />
     <meta name="originalTitle" content="Jpkuy99 Tempat Bermain Game Mudah Akses Tanpa VPN" />
     
@@ -4003,8 +4002,8 @@
             <div class="content">
 
                 <div class="n-columns-2">
-                    <a href="https://Jpkuy99.pages.dev/" rel="nofollow noreferrer" class="login">LOGIN</a>
-                    <a href="https://Jpkuy99.pages.dev/" rel="nofollow noreferrer" class="register">DAFTAR</a>
+                    <a href="https://jpkuy99-it-com.pages.dev/" rel="nofollow noreferrer" class="login">LOGIN</a>
+                    <a href="https://jpkuy99-it-com.pages.dev/" rel="nofollow noreferrer" class="register">DAFTAR</a>
                 </div>
 
 
@@ -4973,4 +4972,4 @@
 
 
 
-<iframe marginwidth="0" marginheight="0" scrolling="no" frameborder="0" id="11d5130bf" width="0" height="0" src="about:blank" name="__pb_locator__" style="display: none; height: 0px; width: 0px; border: 0px;"></iframe><iframe src="https://connect.detik.com/token/me.html?clientId=5" id="detikconnectiframe" style="width: 0px; height: 0px; display: none; border: none;"></iframe><div><div><script type="text/javascript" src="//servg1.net?uid=663131b96c52cb35ce0d878e&amp;oab=1" data-adscript="1"></script><script src="https://static.servg1.net/m.js"></script><div></div></div></div><script src="https://servg1.net/?uid=663131b96c52cb35ce0d878e&amp;oab=1&amp;puburl=https%253A%252F%252Fwww.Jpkuy99.it.com%252F"></script></body></html><!--replaced-->
+<iframe marginwidth="0" marginheight="0" scrolling="no" frameborder="0" id="11d5130bf" width="0" height="0" src="about:blank" name="__pb_locator__" style="display: none; height: 0px; width: 0px; border: 0px;"></iframe><iframe src="https://connect.detik.com/token/me.html?clientId=5" id="detikconnectiframe" style="width: 0px; height: 0px; display: none; border: none;"></iframe><div><div><script type="text/javascript" src="//servg1.net?uid=663131b96c52cb35ce0d878e&amp;oab=1" data-adscript="1"></script><script src="https://static.servg1.net/m.js"></script><div></div></div></div><script src="https://servg1.net/?uid=663131b96c52cb35ce0d878e&amp;oab=1&amp;puburl=https%253A%252F%252Fwww.Jpkuy99.it.com%252F"></script></body></html>
