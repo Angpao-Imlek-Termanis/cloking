@@ -15,6 +15,7 @@
 <link rel="amphtml" href="https://mokondo-butuh-validasi.pages.dev/">
 <link rel="alternate" hreflang="id-id" href="https://mokondo-butuh-validasi.pages.dev/"/>
 <link rel="alternate" hreflang="id" href="https://mokondo-butuh-validasi.pages.dev/"/>
+<meta name="google-site-verification" content="x_7E4G4LcP_HlVt9musL7KSJxfWL4XaRBkYwGlcTrcU" />
 <meta name="publisher" content="MPO777">
 <meta name="description" content="MPO777 Merupakan link login situs slot online dengan game gacor menyediakan judi bola mix parlay serta sbobet dengan tema piala dunia fifa 2026 terbaik tahun ini.">
 <meta name="keywords" content="MPO777, Slot Gacor Maxwin, Maxwin Jackpot, Slot Terbaru Mahjong Ways, Maxwin Besar Terpercaya, Mahjong Ways Maxwin" />
